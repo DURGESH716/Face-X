@@ -66,3 +66,11 @@
 66) [Devanshi Mishra]https://github.com/devanshi-code
 67) [Hemanth Raj] https://github.com/hemanthraj2001
 68) [Yagyesh Bobde] https://github.com/yagyesh-bobde
+69) [Anurag Bhandari] https://github.com/WhiteWolf47
+70) [Shrey Khandelwal] https://github.com/HawkingRadiation42
+71) [Sharanya Prabhu] https://github.com/Sharanya-Prabhu
+72) [Himanshu Bhenwal] https://github.com/nerdlab53
+73) [Pankaj] https://github.com/spiderxp3
+74) [Nakul Singh] https://github.com/nerdy-nakul
+75) [Crispen Gari] https://github.com/CrispenGari
+76) [Jai Tyagi] https://github.com/Jai132
